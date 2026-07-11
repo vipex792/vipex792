@@ -40,8 +40,8 @@ I am a **Software Engineering Student** currently undergoing a Post Graduate Dip
 ---
 
 ### 📫 Let's Connect
-*   **LinkedIn:** [Insert your LinkedIn profile link here]
-*   **Email:** [Insert your email address here]
+*   **LinkedIn:** [www.linkedin.com/in/tushar-jadhav-6773b539a]
+*   **Email:** [jadhavtushar0709@gmail.com]
 
 ---
 
